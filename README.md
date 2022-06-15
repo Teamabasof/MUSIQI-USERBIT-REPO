@@ -1,4 +1,4 @@
 # YAKINDA REPO
 #TEAMABASOF
-t.me/TTteamabasof 
-[MUSIQI BOT](t.me/teamabasov)
+[BOT SAHIBI VƏ REPO TƏRCUMƏ EDƏN](https://t.me/TTteamabasof)
+[MUSIQI BOT](https://t.me/teamabasov)
